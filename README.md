@@ -7,5 +7,5 @@
 
 💡 I'm keen on collaborating with like-minded individuals on exciting software projects. Let's build something amazing together!
 
-📫 Reach out to me via email at ashuss7753rox@gmail.com. Let's connect and turn ideas into reality!
+📫 Reach out to me via email at Shashank33379@gmail.com. Let's connect and turn ideas into reality!
 
